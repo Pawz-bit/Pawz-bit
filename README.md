@@ -1,23 +1,21 @@
-<img width="736" height="414" alt="3d195fdc21da9a6c01b4ae2c7b02a203" src="https://github.com/user-attachments/assets/1325a556-7b57-4794-96ea-c3f44d3af123" /> 
+<img width="1080" height="360" alt="2ed18cbfe8ef8bf504c6d38d05d0e0cf" src="https://github.com/user-attachments/assets/feb1e697-b019-446b-84d5-17ea41353cd1" />
 
 
 
 
 
 
-   ![visitors](https://komarev.com/ghpvc/?username=sodashaker-bit&label=cupcakes%20given%20&labelColor=&countcolor=ffffff6&style=plastic)
+
+   ![visitors](https://komarev.com/ghpvc/?username=sodashaker-bit&label=lightning%20strikes%20&labelColor=&countcolor=ffffff6&style=plastic)
 
  𓂃　"ㅤwhen u and twin are two kind of people " 　_
 
 • intwc (or care) , i'm verry sesitive with alot of things, it can make me have mental breakdown or just close of ofcompletely .
 
 • over 20+ dni or intwc . s ame goes for anyone uder 14.
-　
- <img width="150" height="20" alt="tumblr_3a6d111f8e2ec348b4c864b5d939c1ba_ba7ba15a_250" src="https://github.com/user-attachments/assets/4ebfc737-f0ac-4c57-9af2-428b99635043" />
-<img width="150" height="20" alt="tumblr_46ffaf823bacba3074c09fc9efd391c5_50c236ec_250" src="https://github.com/user-attachments/assets/1e8fb48d-b719-4a67-a531-3b09b1fe844c" />
  
 
-  • " mina ashido, pinkie pie irl trust, ! 𓎠 dubles intwc or dni .𓎡
+  • " stormbringer / mina ashido kin, ! 𓎠 doubles intwc .𓎡
 　　　　
 
    • " I tend to copy other peoples typing quirks ,  or even copy how they type in general. i dont MEAN to do this on puropse to annoy others. its just how i show my appreciation towards you .       
