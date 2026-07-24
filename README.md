@@ -8,7 +8,7 @@
 
    ![visitors](https://komarev.com/ghpvc/?username=sodashaker-bit&label=lightning%20strikes%20&labelColor=&countcolor=ffffff6&style=plastic)
 
- 𓂃　"ㅤwhen u and twin are two kind of people " 　_
+ 𓂃　" " 　_
 
 • intwc (or care) , i'm verry sesitive with alot of things, it can make me have mental breakdown or just close of ofcompletely .
 
