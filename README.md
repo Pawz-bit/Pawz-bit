@@ -19,7 +19,10 @@
 　　　　
 
    • " I tend to copy other peoples typing quirks ,  or even copy how they type in general. i dont MEAN to do this on puropse to annoy others. its just how i show my appreciation towards you .       
+
  
+• do NOT cover me at all unless friends . (unless you C+H w me.)
+
    
    𓂃　 !! <3 　_
 　　　　　　
