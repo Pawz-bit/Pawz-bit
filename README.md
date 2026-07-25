@@ -7,7 +7,7 @@
 
 
 
-   ![visitors](https://komarev.com/ghpvc/?username=sodashaker-bit&label=lightning%20strikes%20&labelColor=&countcolor=ffffff6&style=plastic)
+   ![visitors](https://komarev.com/ghpvc/?username=sodashaker-bit&label=Students%20Of%20%20UA%20High&labelColor=&countcolor=ffffff6&style=plastic)
 
  𓂃　" " 　_
 
