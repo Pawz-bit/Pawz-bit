@@ -12,7 +12,7 @@
 
 • intwc (or care) , i'm verry sesitive with alot of things, it can make me have mental breakdown or just close of ofcompletely .
 
-• over 20+ dni or intwc . s ame goes for anyone uder 14.
+• over 20+ dni or intwc . same goes for anyone uder 14. ( im 17 . .)
  
 
   • " stormbringer / mina ashido kin, ! 𓎠 doubles intwc .𓎡
@@ -21,7 +21,7 @@
    • " I tend to copy other peoples typing quirks ,  or even copy how they type in general. i dont MEAN to do this on puropse to annoy others. its just how i show my appreciation towards you .       
 
  
-• do NOT cover me at all unless friends . (unless you C+H w me.)
+• 
 
    
    𓂃　 !! <3 　_
