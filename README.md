@@ -36,6 +36,6 @@
 ˖ no copy 　ﾉ yes　 inspo .               
 
    , int freely ! idm C+H i happily encorage it !
-                                           𓂃　ㅤ ships int idm what kind !!  　+
+                                           𓂃　ㅤ !!  　+
 
 
