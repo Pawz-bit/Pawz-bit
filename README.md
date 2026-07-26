@@ -19,7 +19,7 @@
 • over 20+ dni or intwc . same goes for anyone uder 14. ( im 17 . .)
  
 
-  • " mina ashido kin, ! 𓎠 doubles intwc .𓎡
+  • " mina ashido and 118o8 irl ! 𓎠 doubles intwc .𓎡
 　　　　
 
    • " I tend to copy other peoples typing quirks ,  or even copy how they type in general. i dont MEAN to do this on puropse to annoy others. its just how i show my appreciation towards you .       
