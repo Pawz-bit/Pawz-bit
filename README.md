@@ -8,7 +8,7 @@
 
 
 
-   ![visitors](https://komarev.com/ghpvc/?username=sodashaker-bit&label=<3%20&labelColor=&countcolor=f03ca5&style=plastic)
+<a href="https://visitorbadge.io/status?path=(https%3A%2F%2Fkomarev.com%2Fghpvc%2F%3Fusername%3Dsodashaker-bit"><img src="https://api.visitorbadge.io/api/visitors?path=(https%3A%2F%2Fkomarev.com%2Fghpvc%2F%3Fusername%3Dsodashaker-bit&label=%3C3&labelColor=%23000000&countColor=%23f03ca5&style=flat" /></a>
 
  𓂃　" " 　_
 
