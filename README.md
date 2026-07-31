@@ -1,37 +1,37 @@
-<img width="1280" height="143" alt="rwal1a" src="https://github.com/user-attachments/assets/dec262be-c9bf-491b-81e6-0f6101e72058" />
-
-
-<img width="736" height="1063" alt="b2efc1c55916f5724571d7c38c115a37" src="https://github.com/user-attachments/assets/369f346d-565c-4acf-9538-5e1b8759be30" />
 
 
 
-<img width="1280" height="143" alt="rwal1a" src="https://github.com/user-attachments/assets/dec262be-c9bf-491b-81e6-0f6101e72058" />
+<img width="1198" height="399" alt="3b03d73e71b088a2e77f2311bdef0113" src="https://github.com/user-attachments/assets/1a0daaab-5b4c-4d44-b339-28e458cf8d6d" />
 
 
 
 
-   ![visitors](https://komarev.com/ghpvc/?username=sodashaker-bit&label=Students%20Of%20%20UA%20High&labelColor=&countcolor=ffffff6&style=plastic)
+
+
+   ![visitors](https://komarev.com/ghpvc/?username=sodashaker-bit&label=<3%20&labelColor=&countcolor=f03ca5&style=plastic)
 
  𓂃　" " 　_
 
-• intwc (or care) , i'm verry sesitive with alot of things, it can make me have mental breakdown or just close of ofcompletely .
+• intwc (or care) , i'm verry sensitive with alot of things, it can make me have mental breakdown or just close off completely .
 
-• over 20+ dni or intwc . same goes for anyone uder 14. ( im 17 . .)
+• over 20+ dni or intwc . same goes for anyone under 14. ( im 17 . .)
  
 
   • " mina ashido and 118o8 irl ! 𓎠 doubles intwc .𓎡
 　　　　
 
-   • " I tend to copy other peoples typing quirks ,  or even copy how they type in general. i dont MEAN to do this on puropse to annoy others. its just how i show my appreciation towards you .       
+   • " I tend to copy other peoples typing quirks ,  or even copy how they type in general. i don't MEAN to do this on purpose to annoy others. its just how i show my appreciation towards you .       
 
  
-• <img width="250" height="257" alt="tumblr_6ddbdfb2a6d8cafa8c66745cb66e15c0_4e53e93a_250" src="https://github.com/user-attachments/assets/62ae541d-2d4c-4cfa-96ba-06c393ba844a" />
+
 
 
 
    
    𓂃　 !! <3 　_
 　　　　　　
+
+
 
 ˖ no copy 　ﾉ yes　 inspo .               
 
