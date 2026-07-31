@@ -22,7 +22,14 @@
 
    • " I tend to copy other peoples typing quirks ,  or even copy how they type in general. i don't MEAN to do this on purpose to annoy others. its just how i show my appreciation towards you .       
 
+ <img width="150" height="20" alt="tumblr_p8rb9xtMfu1xtxh11o5_250" src="https://github.com/user-attachments/assets/b06998b1-4d4b-4f49-a5bb-df2a5ce430c5" />
  
+ 
+ <img width="150" height="20" alt="DFYvgRC" src="https://github.com/user-attachments/assets/9ea4d84c-6fb1-45ec-bf79-c1ad0e1c6a5e" />
+
+<img width="150" height="20" alt="tumblr_pc38rqsNC61u4h28eo8_250" src="https://github.com/user-attachments/assets/e4de3f06-af34-4b10-b011-52765e1223cf" />
+
+
 
 
 
