@@ -28,12 +28,14 @@
 
 Kins !! 
 
+- Ochaco Uraraka
+- Mina ashido - Mha
+- 11808 - Bluuworld / C00lverse .  
+- Pinkie pie - mlp
 
 
-<img width="99" height="56" alt="tumblr_99a3ea0c94a86db3fce61a666654fbf3_b5e0974d_100" src="https://github.com/user-attachments/assets/a74b2ea6-9354-4f7b-ac89-066966c9f079" />
 
 
-<img width="113" height="69" alt="d6plwqc-c9cbee11-380b-4895-a585-f72c01dba5b2" src="https://github.com/user-attachments/assets/28781afe-324a-4c58-a72d-97c3a9b3c7ee" />
    
 
   
