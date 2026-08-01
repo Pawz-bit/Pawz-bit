@@ -1,9 +1,11 @@
-
-
-
 <img width="1198" height="399" alt="3b03d73e71b088a2e77f2311bdef0113" src="https://github.com/user-attachments/assets/1a0daaab-5b4c-4d44-b339-28e458cf8d6d" />
 
 
+ <img width="150" height="20" alt="tumblr_p8rb9xtMfu1xtxh11o5_250" src="https://github.com/user-attachments/assets/b06998b1-4d4b-4f49-a5bb-df2a5ce430c5" />
+ 
+  <img width="150" height="20" alt="DFYvgRC" src="https://github.com/user-attachments/assets/9ea4d84c-6fb1-45ec-bf79-c1ad0e1c6a5e" />
+
+<img width="150" height="20" alt="tumblr_pc38rqsNC61u4h28eo8_250" src="https://github.com/user-attachments/assets/e4de3f06-af34-4b10-b011-52765e1223cf" />
 
 
 
@@ -16,26 +18,27 @@
 
 • over 20+ dni or intwc . same goes for anyone under 14. ( im 17 . .)
  
-
-  • " mina ashido irl ! 𓎠 doubles intwc .𓎡
 　　　　
 
    • " I tend to copy other peoples typing quirks ,  or even copy how they type in general. i don't MEAN to do this on purpose to annoy others. its just how i show my appreciation towards you .       
 
- <img width="150" height="20" alt="tumblr_p8rb9xtMfu1xtxh11o5_250" src="https://github.com/user-attachments/assets/b06998b1-4d4b-4f49-a5bb-df2a5ce430c5" />
- 
- 
- <img width="150" height="20" alt="DFYvgRC" src="https://github.com/user-attachments/assets/9ea4d84c-6fb1-45ec-bf79-c1ad0e1c6a5e" />
-
-<img width="150" height="20" alt="tumblr_pc38rqsNC61u4h28eo8_250" src="https://github.com/user-attachments/assets/e4de3f06-af34-4b10-b011-52765e1223cf" />
 
 
 
 
+Kins !! 
 
 
+
+<img width="99" height="56" alt="tumblr_99a3ea0c94a86db3fce61a666654fbf3_b5e0974d_100" src="https://github.com/user-attachments/assets/a74b2ea6-9354-4f7b-ac89-066966c9f079" />
+
+
+<img width="113" height="69" alt="d6plwqc-c9cbee11-380b-4895-a585-f72c01dba5b2" src="https://github.com/user-attachments/assets/28781afe-324a-4c58-a72d-97c3a9b3c7ee" />
    
-   𓂃　 !! <3 　_
+
+ <img width="99" height="56" alt="tumblr_ecead46aa83f79705cde4a7ffda7e76b_778d6f08_100" src="https://github.com/user-attachments/assets/4c27b69a-7b45-4380-bf2d-97616c59c8e6" />
+  
+   ( 𓂃idm　Doubles !! <3 　_
 　　　　　　
 
 
