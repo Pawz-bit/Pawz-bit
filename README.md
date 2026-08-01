@@ -36,7 +36,6 @@ Kins !!
 <img width="113" height="69" alt="d6plwqc-c9cbee11-380b-4895-a585-f72c01dba5b2" src="https://github.com/user-attachments/assets/28781afe-324a-4c58-a72d-97c3a9b3c7ee" />
    
 
- <img width="99" height="56" alt="tumblr_ecead46aa83f79705cde4a7ffda7e76b_778d6f08_100" src="https://github.com/user-attachments/assets/4c27b69a-7b45-4380-bf2d-97616c59c8e6" />
   
    ( 𓂃idm　Doubles !! <3 　_
 　　　　　　
