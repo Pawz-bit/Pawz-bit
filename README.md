@@ -24,17 +24,6 @@
 
 
 
-
-
-Kins !! 
-
-- Mina ashido - Mha
-- 11808 - Bluuworld / C00lverse .  
-- Pinkie pie - mlp
-- eternal sugar cookie - crk
-
-
-
    
 
   
