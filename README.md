@@ -26,7 +26,6 @@
 　　　　　　
 
 <img width="99" height="56" alt="tumblr_26e8c6e5dfd08562c411a0776d796a75_9f8fd841_100" src="https://github.com/user-attachments/assets/6c9558f6-fd87-47e8-9154-eabd06e5e96a" />
-<img width="99" height="57" alt="p8z2md" src="https://github.com/user-attachments/assets/77f440f4-85b3-4790-ac86-7bc5944db2c6" />
 
 
 ˖ no copy 　. yes　 inspo .               
