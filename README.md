@@ -1,6 +1,7 @@
 ( GITHUB UNDER CONSTRUCTION ! ! !)
 
-<img width="45000" height="10540" alt="6b505222d87d67996a4759aae567e7a8" src="https://github.com/user-attachments/assets/314b90c8-1e09-4ce3-85da-9be9888f9f01" />
+<img width="7360" height="4140" alt="6197ecbe1e778ae4802ee8b8c490bb08" src="https://github.com/user-attachments/assets/86d0bcf6-81e4-4ec2-93d5-b44d3bd739e2" />
+
 
 
 
@@ -21,11 +22,10 @@
 
    • " I tend to copy other peoples typing quirks ,  or even copy how they type in general. i don't MEAN to do this on purpose to annoy others. its just how i show my appreciation towards you .       
 
-  
-   (
+
 　　　　　　
 
-<img width="99" height="56" alt="tumblr_26e8c6e5dfd08562c411a0776d796a75_9f8fd841_100" src="https://github.com/user-attachments/assets/6c9558f6-fd87-47e8-9154-eabd06e5e96a" />
+
 
 
 ˖ no copy 　. yes　 inspo .               
