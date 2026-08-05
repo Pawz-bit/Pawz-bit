@@ -21,7 +21,7 @@
  
 　　　　
 
-   • " I tend to copy other peoples typing quirks ,  or even copy how they type in general. i don't MEAN to do this on purpose to annoy others. its just how i show my appreciation towards you .       
+   • " I tend to copy other peoples typing quirks ,  or even copy how they type in general. like switching 'S' with a 'Z' or putting '#' before text .       
 
 
 　˖ no copy 　. yes　 inspo .               
