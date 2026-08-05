@@ -1,3 +1,4 @@
+
 ( GITHUB UNDER CONSTRUCTION ! ! !)
 
 <img width="7360" height="4140" alt="6197ecbe1e778ae4802ee8b8c490bb08" src="https://github.com/user-attachments/assets/86d0bcf6-81e4-4ec2-93d5-b44d3bd739e2" />
@@ -23,14 +24,19 @@
    • " I tend to copy other peoples typing quirks ,  or even copy how they type in general. i don't MEAN to do this on purpose to annoy others. its just how i show my appreciation towards you .       
 
 
-　　　　　　
-
-
-
-
-˖ no copy 　. yes　 inspo .               
+　˖ no copy 　. yes　 inspo .               
 
    , int freely ! idm C+H i happily encorage it !
-                                           𓂃　ㅤ !!  　+
+                                           𓂃　ㅤ !!  　+　　　　　
+
+<img width="300" height="250" alt="Sugar_Swan_Cookie__-removebg-preview" src="https://github.com/user-attachments/assets/c954084b-b804-4bfb-9b30-0951390e5dc9" />
+<img width="300" height="250" alt="Burning_spice_png__1_-removebg-preview" src="https://github.com/user-attachments/assets/d67ed5cf-0887-4f40-a645-059d1bb99fa7" /> 
+
+spice swan cannon oaky? ok.
+
+
+
+
+
 
 
