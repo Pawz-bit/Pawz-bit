@@ -1,5 +1,4 @@
-
-( GITHUB UNDER CONSTRUCTION ! ! !)
+( this is still a wip bc im so lazy to NOT finish it . )
 
 <img width="7360" height="4140" alt="6197ecbe1e778ae4802ee8b8c490bb08" src="https://github.com/user-attachments/assets/86d0bcf6-81e4-4ec2-93d5-b44d3bd739e2" />
 
@@ -34,10 +33,10 @@
 
 spice swan cannon oaky? ok.
 
+<img width="529" height="44" alt="image" src="https://github.com/user-attachments/assets/056def95-ef23-4b6c-acba-1d592eab5ddf" />
 
+hahha hehahaha..... its cannon huzzah ! 
 
-
-<img width="430" height="148" alt="Screenshot 2026-08-04 214810" src="https://github.com/user-attachments/assets/269dac94-515f-4f45-8388-82202cdd870d" />
-
+ty  . ponytownyumeshippers
 💗💗
 
