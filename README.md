@@ -17,7 +17,7 @@
 
 • intwc (or care) , i'm verry sensitive with alot of things, it can make me have mental breakdown or just close off completely .
 
-• over 20+ dni or intwc . same goes for anyone under 14. ( im 17 . .)
+•  anyone under 14 intwec or dni (unless i know u.
  
 　　　　
 
