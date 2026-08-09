@@ -11,7 +11,7 @@
 
 
 
-<a href="https://visitorbadge.io/status?path=(https%3A%2F%2Fkomarev.com%2Fghpvc%2F%3Fusername%3Dsodashaker-bit"><img src="https://api.visitorbadge.io/api/visitors?path=(https%3A%2F%2Fkomarev.com%2Fghpvc%2F%3Fusername%3Dsodashaker-bit&label=%3C3&labelColor=%23ffffff&countColor=%23fdc3d1&style=flat" /></a>
+<a href="https://visitorbadge.io/status?path=(https%3A%2F%2Fkomarev.com%2Fghpvc%2F%3Fusername%3Dsodashaker-bit"><img src="https://api.visitorbadge.io/api/visitors?path=(https%3A%2F%2Fkomarev.com%2Fghpvc%2F%3Fusername%3Dsodashaker-bit&label=%3C3&labelColor=%23ffffff&countColor=%231a1819&style=flat" /></a>
 
  𓂃　" " 　_
 
