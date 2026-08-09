@@ -1,6 +1,7 @@
 ( this is still a wip bc im so lazy to NOT finish it . )
 
-<img width="7360" height="4140" alt="6197ecbe1e778ae4802ee8b8c490bb08" src="https://github.com/user-attachments/assets/86d0bcf6-81e4-4ec2-93d5-b44d3bd739e2" />
+<img width="6350" height="3130" alt="ecca93c7f027841795693c39b5e5f913" src="https://github.com/user-attachments/assets/65c9c9f1-61b3-4f61-ac1e-35834a7f0d6d" />
+
 
 
 
@@ -26,12 +27,8 @@
 　˖ no copy 　. yes　 inspo .               
 
    , int freely ! idm C+H i happily encorage it !
-                                           𓂃　ㅤ !!  　+　　　　　
+                                           𓂃　sugar swan kin , and many other kins.. ) doubles int !!  　+　　　　　
 
-<img width="300" height="250" alt="Sugar_Swan_Cookie__-removebg-preview" src="https://github.com/user-attachments/assets/c954084b-b804-4bfb-9b30-0951390e5dc9" />
-<img width="300" height="250" alt="Burning_spice_png__1_-removebg-preview" src="https://github.com/user-attachments/assets/d67ed5cf-0887-4f40-a645-059d1bb99fa7" /> 
-
-spice swan cannon oaky? ok.
 
 <img width="529" height="44" alt="image" src="https://github.com/user-attachments/assets/056def95-ef23-4b6c-acba-1d592eab5ddf" />
 
