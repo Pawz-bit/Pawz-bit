@@ -15,7 +15,7 @@
 
  𓂃　" " 　_
 
-• intwc (or care) , i'm verry sensitive with alot of things, it can make me have mental breakdown or just close off completely .
+• intwc (or care) , i'm verry sensitive with alot of things, it can / OR will make me close off completely .
 
 •  anyone under 14 intwec or dni (unless i know u.
  
@@ -27,7 +27,7 @@
 　˖ no copy 　. yes　 inspo .               
 
    , int freely ! idm C+H i happily encorage it !
-                                           𓂃　sugar swan kin , and many other kins.. ) doubles int !!  　+　　　　　
+                                           𓂃　!!  　+　　　　　
 
 
 <img width="529" height="44" alt="image" src="https://github.com/user-attachments/assets/056def95-ef23-4b6c-acba-1d592eab5ddf" />
