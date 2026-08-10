@@ -30,10 +30,6 @@
                                            𓂃　!!  　+　　　　　
 
 
-<img width="529" height="44" alt="image" src="https://github.com/user-attachments/assets/056def95-ef23-4b6c-acba-1d592eab5ddf" />
 
-hahha hehahaha..... its cannon huzzah ! 
-
-ty  . ponytownyumeshippers
 💗💗
 
