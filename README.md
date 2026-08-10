@@ -30,7 +30,7 @@
                                            𓂃　!!  　+　　　　　
 <img width="340" height="48" alt="image" src="https://github.com/user-attachments/assets/144f040e-14af-4d48-bb1d-ec507d2d29af" />
 
-Ty ponytownyumeshippers <3
+
 
 
 💗💗
