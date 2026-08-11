@@ -24,7 +24,7 @@
    • " I tend to copy other peoples typing quirks ,  or even copy how they type in general. like switching 'S' with a 'Z' or putting '#' before text .       
 
 
-　˖ no copy 　. yes　 inspo .               
+　               
 
    , int freely ! idm C+H i happily encorage it !
                                            𓂃　!!  　+　　　　　
