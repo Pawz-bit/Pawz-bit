@@ -17,7 +17,7 @@
 
 • intwc (or care) , i'm verry sensitive with alot of things, it can / OR will make me close off completely .
 
-•  anyone under 14 intwec or dni (unless i know u.
+•  anyone under 5teen intwec or dni (unless i know u.
  
 　　　　
 
