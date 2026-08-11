@@ -17,7 +17,7 @@
 
 <a href="https://visitorbadge.io/status?path=(https%3A%2F%2Fkomarev.com%2Fghpvc%2F%3Fusername%3Dsodashaker-bit"><img src="https://api.visitorbadge.io/api/visitors?path=(https%3A%2F%2Fkomarev.com%2Fghpvc%2F%3Fusername%3Dsodashaker-bit&label=%3C3&labelColor=%23ffffff&countColor=%231a1819&style=flat" /></a>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=&duration=3951&pause=229&color=FBFBFB9A&width=435&lines=Lovers+...+together...;I+need+her%2C+I+need+her..;I'll+feed+her%2C+I'll+keep+her..;I+need+her%2C+I+need+her+...+%E2%99%A1+)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=&duration=3951&pause=229&color=FBFBFB9A&width=435&lines=Lovers+...+together...;I+need+her%2C+I+need+her..;I'll+feed+her%2C+I'll+keep+her..!;I+need+her%2C+I+need+her+...+%E2%99%A1+)](https://git.io/typing-svg)
  
  𓂃　" " 　_
 
