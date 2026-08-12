@@ -1,4 +1,4 @@
-( this is still a wip bc im so lazy to NOT finish it . . i so fucking lazy bro)
+
 
 <img width="340" height="48" alt="image" src="https://github.com/user-attachments/assets/144f040e-14af-4d48-bb1d-ec507d2d29af" />
 
@@ -23,7 +23,7 @@
 
 • intwc (or care) , i'm verry sensitive with alot of things, it can / OR will make me close off completely .
 
-•  anyone under 5teen intwec or dni (unless i know u.
+•  anyone under 4teen intwec or dni (unless i know u.
  
 　　　　
 
