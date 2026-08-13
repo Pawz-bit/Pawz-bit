@@ -24,15 +24,7 @@
 • intwc (or care) , i'm verry sensitive with alot of things, it can / OR will make me close off completely .
 
 •  anyone under 4teen intwec or dni (unless i know u.
- 
-　　　　
 
-   • " I tend to copy other peoples typing quirks ,  or even copy how they type in general. like switching 'S' with a 'Z' or putting '#' before text .       
-
-
-　
-
-            
 
    , int freely ! idm C+H i happily encorage it !
                                            𓂃　!!  　+　　　　　
